@@ -1,4 +1,4 @@
-### ddxt.in (Dhruv) ༼ つ ◕_◕ ༽つ 
+### ddxt.in (Dhruv)
 
 Hey! I am [Dhruv](https://twitter.com/xenuryne), a kid who isnt sure what he wants to do when he grows up... 
 so I try everything! 
